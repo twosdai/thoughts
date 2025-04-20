@@ -6,3 +6,4 @@ daniel.wasserlauf@gmail.com is a great way to reach me. :-)
 # Table of Contents
 
 - [AI: You Are Holding It Wrong](AIYouAreHoldingItWrong.md)
+- [The Wandering Jew](theWanderingJew.md)
