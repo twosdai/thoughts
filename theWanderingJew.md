@@ -3,7 +3,7 @@
 I've been thinking about why people move lately. I wonder what compels them to leave their home. At the same time, I've found myself reflecting on my own identity. 
 
 
-The concept of "The wandering jew" was first introduced to me when I was skimming an extremely outdated etiquette book titled: [Don'ts For Husbands](https://books.google.com/books?id=3sLolwGxEdAC&printsec=frontcover#v=onepage&q&f=false) where the author directed good husbands to UNDER NO CIRCUMSTANCES: 
+The concept of "the wandering jew" was first introduced to me when I was skimming an extremely outdated etiquette book titled: [Don'ts For Husbands](https://books.google.com/books?id=3sLolwGxEdAC&printsec=frontcover#v=onepage&q&f=false) where the author directed good husbands to UNDER NO CIRCUMSTANCES: 
 
 _"Walk in and out of rooms like the wandering Jew"_
 
